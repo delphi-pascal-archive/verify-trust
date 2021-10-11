@@ -1,0 +1,1 @@
+По вопросам комерческого использования компонента VerifyTrust: mail@smalldonkey.net
